@@ -78,7 +78,10 @@ Open wide!
 [TrueEYEcoreMEDKIT?, spoken]:
 What the fuck, FL studio? (laughter)
 <br>
+
 [Zuka]
+<br>
+
 I'm havin' a baby, and the baby is you
 I'm birthin' husband, it's true
 I'm havin' a baby, and the baby is you
@@ -87,7 +90,10 @@ I'm havin' a baby, and the baby is you
 My ovaries are out the wazoo
 I'm havin' a baby, and the baby wears shoes
 Babies, babies, babies, babies
+<br>
+
 Babies, babies, babies, babies, babies, babies, babies, babies	[The broker]
+****
 You're havin' a baby, and the baby is me
 Ah, birthin' husband, it's true!
 You're havin' a baby, and the baby is me
